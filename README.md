@@ -10,7 +10,7 @@ By now,I'm a💯intj💜
 
 <u>I'm so thirsty for chanllenging myself🥇and getting married with the ***cute girl💌***who I love so deeply!😙</u>
 
-For the sake of hobby and interest,I could create some brainstorms🧠randomly.~~Do not balme me for the unrealistic tips!~~
+For the sake of hobby and interest,I could create some brainstorms🧠randomly.~~Do not blame me for the unrealistic tips!~~
 
 I would be extremely grateful if any senior develper could point out the mistakes in my code🥺🫰！
 
