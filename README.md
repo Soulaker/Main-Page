@@ -4,7 +4,7 @@ You can call me *“sak"* directly.
 
 A student majors in *Computer Science and Technology💻*
 
-By now,I'm a💯intj💜
+By now,I'm a💯intj-a 5w6💜
 
 ~~I don’t have a good command of programming.😿~~
 
@@ -16,7 +16,7 @@ I would be extremely grateful if any senior develper could point out the mistake
 
 The language I’m studying：
 
-***C++，Python3，java，html，css，Vue，js，MarkDown，java***
+***C++，Python3，java，html，css，Vue，js，MarkDown，java,T-sql***
 
 The project I‘m building presently：
 
