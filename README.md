@@ -25,6 +25,8 @@ The project I‘m building presently：
 ***https://github.com/Soulaker/Own-Code-Repository***
 
 ~~Hope I could contribute more code in 2026🥺and stop slacking off from now on👍!~~
+![](https://raw.githubusercontent.com/Soulaker/github-stats/master/generated/overview.svg#gh-dark-mode-only)
+![](https://raw.githubusercontent.com/Soulaker/github-stats/master/generated/overview.svg#gh-light-mode-only)
 
 
 
