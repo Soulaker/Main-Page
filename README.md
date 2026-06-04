@@ -2,13 +2,13 @@
 
 You can call me *“sak"* directly.
 
-A student majors in *Computer Science and Technology💻*
+A student majoring in *Computer Science and Technology💻*
 
-By now,I'm a💯intj-a 5w6💜
+By now,I'm an💯intj-a 5w6💜
 
 ~~I don’t have a good command of programming.😿~~
 
-<u>I'm so thirsty for chanllenging myself🥇and getting married with the ***cute isfp girl💌***who I love so deeply!😙</u>
+<u>I'm so thirsty for challenging myself🥇and getting married to the ***cute isfp girl💌***who I love so deeply!😙</u>
 
 For the sake of hobby and interest,I could create some brainstorms🧠randomly.~~Do not blame me for the unrealistic tips!~~
 
