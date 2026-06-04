@@ -12,7 +12,7 @@ By now,I'm an💯intj-a 5w6💜
 
 For the sake of hobby and interest,I could create some brainstorms🧠randomly.~~Do not blame me for the unrealistic tips!~~
 
-I would be extremely grateful if any senior develper could point out the mistakes in my code🥺🫰！
+I would be extremely grateful if any senior developer could point out the mistakes in my code🥺🫰！
 
 The language I’m studying：
 
