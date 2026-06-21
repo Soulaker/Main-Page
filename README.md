@@ -8,7 +8,9 @@ By now,I'm an💯intj-a 5w6💜
 
 ~~I don’t have a good command of programming.😿~~
 
-<u>I'm so thirsty for challenging myself🥇and getting married to the ***cute isfp girl💌***who I love so deeply!😙</u>
+<u>I'm so thirsty for challenging myself🥇
+
+and getting married to the ***cute isfp girl💌***who I love so deeply!😙</u>
 
 For the sake of hobby and interest,I could create some brainstorms🧠randomly.
 
