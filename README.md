@@ -10,7 +10,8 @@ By now,I'm an💯intj-a 5w6💜
 
 <u>I'm so thirsty for challenging myself🥇and getting married to the ***cute isfp girl💌***who I love so deeply!😙</u>
 
-For the sake of hobby and interest,I could create some brainstorms🧠randomly.~~Do not blame me for the unrealistic tips!~~
+For the sake of hobby and interest,I could create some brainstorms🧠randomly.
+~~Do not blame me for the unrealistic tips!~~
 
 I would be extremely grateful if any senior developer could point out the mistakes in my code🥺🫰！
 
