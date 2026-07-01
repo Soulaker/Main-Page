@@ -10,8 +10,6 @@ By now,I'm an💯intj-a 5w6💜
 
 <u>I'm so thirsty for challenging myself🥇
 
-and getting married to the ***cute 🍆 girl💌***who I love so deeply!😙</u>
-
 For the sake of hobby and interest,I could create some brainstorms🧠randomly.
 
 ~~Do not blame me for the unrealistic tips!~~
