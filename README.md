@@ -28,7 +28,7 @@ The project I‘m building presently：
 
 ~~Hope I could contribute more code in 2026🥺and stop slacking off from now on👍!~~
 
-![](https://raw.githubusercontent.com/Soulake/github-stats/master/generated/overview.svg#gh-dark-mode-only)
+![](https://raw.githubusercontent.com/Soulaker/github-stats/master/generated/overview.svg#gh-dark-mode-only)
 
 
 
