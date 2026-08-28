@@ -28,7 +28,12 @@ The project I‘m building presently：
 
 ~~Hope I could contribute more code in 2026🥺and stop slacking off from now on👍!~~
 
-![](https://raw.githubusercontent.com/Soulaker/github-stats/master/generated/overview.svg#gh-dark-mode-only)
+
+
+<p>
+  <img height="180em" src="https://github-readme-stats-alpha-flax.vercel.app/api/top-langs/?username=Soulaker&layout=compact&langs_count=8&theme=tokyonight&hide_border=true" />
+  <img height="180em" src="https://github-readme-stats-alpha-flax.vercel.app/api?username=Soulaker&show_icons=true&theme=tokyonight&hide_border=true" />
+</p>
 
 
 
